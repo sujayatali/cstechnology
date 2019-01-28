@@ -1,2 +1,2 @@
-# cstechnology
-my website is not seo friendly plz help me
+The cache will bring your website to Google's first page if anyone
+You know if you tell me
